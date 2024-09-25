@@ -1,0 +1,6 @@
+1. ![](kk1/5fc07a02624c4a6e1b5c5292504e2e27.png)选择形状-该贴图为所需图片即可
+2. kk的ae-mi结合大法
+	1. ![](kk1/ee81aabeb337dd1ae83017bd1ff566db.png)![](kk1/e665685ba6291b27af8081264c2f5341.png)![](kk1/4e47f060ab5cb7332414bd29d582c521.png)![](kk1/4c8b7d4c554a641a0d126730394a87ce.png)![](kk1/90c5705369a169e02d15ac02c01fa8e0.png)![](kk1/8a38a422df9e9adbb09fd62591d3198f.png)![](kk1/1858b6ca77e324c4f86c30030702bb3b.png)
+	2. ![](kk1/5a38c1e563b6a2f5be4fbb3f3e408402.jpg)
+这里实际操作是![](kk1/f15aaac6030aadc00900b99102546069.png)
+![](kk1/9e8523e3d30bfaed41fe18d88a02ba3f.png)![](kk1/9583bf82d5162776dd1250472dcf233c.png)![](kk1/14b3af6f090d703a29f4598ed6c5f33e.png)![](kk1/a32f230ac34222c9ff6a2b619a8c1cca.png)![](kk1/f7e386f4955518afcec2ff509f45b146.png)![](kk1/145692e2f9dd686d450631d75de21cdb.png)![](kk1/2224c08229503647cadc9f6523d63839.png)![](kk1/75cacfe80d326cc3bd392bda5f5125ac.png)![](kk1/9d071e92eaf5aa99e5ab16ab516da5a3.jpg)![](kk1/54d672bc2cf837a97d3244cf48d0e64f.png)![](kk1/a71fb7e335a76c3f350ab5c46715def9.png)![](kk1/af87bdb119ad04e485382ae572379fd2.png)
